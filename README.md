@@ -13,3 +13,5 @@
 ##### James leite Francisco - 1903856
 ##### Pedro Henrique Domingues Dias - 1903745
 ##### James Leite Francisco - 1903856
+
+Pedro Luiz Soares Santos - 1903767  
