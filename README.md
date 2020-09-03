@@ -7,11 +7,4 @@
 
 ## Integrantes  
 
-##### Marcos Mauricio Daninger - 1904015
-##### Rodrigo da Silva Rodrigues - 1904054
-##### Pedro Luiz Soares Santos - 1903767
-##### James leite Francisco - 1903856
-##### Pedro Henrique Domingues Dias - 1903745
-##### James Leite Francisco - 1903856
-
 Pedro Luiz Soares Santos - 1903767  
