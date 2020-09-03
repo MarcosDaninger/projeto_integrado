@@ -8,3 +8,5 @@
 ## Integrantes  
 
 ##### Pedro Henrique Domingues Dias - 1903745  
+##### Pedro Luiz Soares Santos - 1903767  
+##### Marcos Mauricio Daninger - 1904015  
